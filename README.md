@@ -244,6 +244,12 @@ Ne fuyez pas la critique qui peut vous aider à vous améliorer. Même vous, ess
 
 32 Get paid for what you are learning – Benjamin Mpoyi
 
+Cela peut paraitre contre-intuitif mais apprenez à vendre les connaissances que vous êtes en train d'apprendre le plus tot possible.
+En confrontant vos compétences avec les besoin du marché, vous allez apprendre à vous concentrer sur les choses essentielles de manière professionnelles.
+Que vous soyez novice ou expert, votre travail a toujours de la valeur et vous trouverez toujours une demande selon le tarif de votre prestation.
+Par exemple, un architecte peut avoir besoin d'un graphiste pour faire une ébauche rapide de son futur projet afin de faire une proposition à son client.
+Dans ce genre de besoin, il n'est pas toujours nécessaire d'avoir un expert pour le mener à terme car cela n'est pas nécessaire à ce stade d'avancement. Cela n'est qu'un exemple de possibilité de monétisation pour un débutant. Enfin plus vous monétisez rapidement vos nouvelles compétences, moins vous aurez besoin d'enchainer les petits boulots pour financer vos dépenses quotidiennes.
+
 The greatest education in the world is watching the masters at work. Michael Jackson
 
 “Stay hungry. Stay foolish.” ― Steve Jobs
