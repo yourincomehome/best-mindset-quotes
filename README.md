@@ -1,5 +1,7 @@
 # best-mindset-quotes
 
+
+MINDSET
 1 If money is your hope for independence you will never have it. The only real security that a man will have in this world is a reserve of knowledge, experience, and ability
 
 Faire de l'argent ne doit pas être votre seul motivation quand vous entreprenez. C'est une conséquence logique des actions que vous allez mettre en place. Votre objectif principal est d'apporter le plus de valeur possible à vos clients. De plus, si vous souhaitez la liberté financière : concentrez vos efforts sur acquérir des compétences et créer une autorité autour de votre personne.
@@ -396,3 +398,12 @@ Quality is the best business plan. – John Lasseter
 If you aren’t making a difference in other people’s lives, you shouldn’t be in business – it’s that simple. – Richard Branson
 
 I attribute my success to this: I never gave or took any excuse. – Florence Nightingale
+
+LEARNING
+DISCIPLINE
+WORK
+TEAM & RELATIONSHIPS
+PRODUCT
+MARKET
+SALES
+WORK-LIFE BALANCE
