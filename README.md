@@ -1,7 +1,6 @@
 # best-mindset-quotes
 
 
-# MINDSET
 1 If money is your hope for independence you will never have it. The only real security that a man will have in this world is a reserve of knowledge, experience, and ability
 
 Faire de l'argent ne doit pas être votre seul motivation quand vous entreprenez. C'est une conséquence logique des actions que vous allez mettre en place. Votre objectif principal est d'apporter le plus de valeur possible à vos clients. De plus, si vous souhaitez la liberté financière : concentrez vos efforts sur acquérir des compétences et créer une autorité autour de votre personne.
@@ -29,17 +28,11 @@ Même si vous devez penser au long terme, vous devez au quotidien faire des tâc
 
 
 5 Ordinary People Focus on the Outcome. Extraordinary People Focus On the Process. Anthony Moore
-
-
-
 Cherchez à créer des systèmes qui ramènent des profits encore et encore en s'agrandissant plutôt que des petits one-shots.
 
 
 
 6 “Your time is limited, so don’t waste it living someone else’s life.” ― Steve Jobs
-
-
-
 Si vous n'êtes pas satisfaits avec votre vie actuelle. 
 
 
@@ -220,29 +213,74 @@ C'est cela le vrai échec.
 
 29 “The single most powerful asset we all have is our mind. If it is trained well, it can create enormous wealth in what seems to be an instant.” Robert T. Kiyosaki
 
-
-
 Votre meilleur ressource en tant qu'entrepreneur c'est vous. Votre mindset, vos connaissances.
 
 
 
-30 “Poor people have big TV. Rich people have big library.” – Jim Rohn
 
 
 
-Ne vous faites pas trop distraire, passez plutot votre temps libre à vous former, occupez vous avec des activités ou vous serez en train de produire des choses.
-
-Améliorer ses capacités en musiques etc..
 
 
-
-31 Constantly seek criticism. A well thought out critique of what you’re doing is as valuable as gold Elon Musk
+It’s good to learn from your mistakes. It’s better to learn from other people’s mistakes. Warren Buffett
 
 
 
-Ne fuyez pas la critique qui peut vous aider à vous améliorer. Même vous, essayez d'être toujours le plus objectif possible d'avoir une pensée critique sur comment vous opérer dans votre business ? Quels sont vos points forts, vos faiblesses ? Pourquoi vos concurrents réussissent et vous échouer ? Analyser le plus porfondément possible.
 
 
+
+
+
+“Only the paranoid survive.” -Andy Grove, former CEO of Intel
+
+
+
+
+
+
+
+
+
+
+The utmost thing is the user experience, to have the most useful experience. Marissa Mayer
+
+
+
+# MINDSET
+If you aren’t making a difference in other people’s lives, you shouldn’t be in business – it’s that simple. – Richard Branson
+
+“Time is more valuable than money. You can get more money, but you cannot get more time.” – Jim Rohn
+
+“Never depend on single income. Make investments to create a second source” – Warren Buffett
+
+“Act as if! Act as if you’re a wealthy man, rich already, and then you’ll surely become rich. Act as if you have unmatched confidence and then people will surely have confidence 
+in you. Act as if you have unmatched experience and then people will follow your advice. And act as if you are already a tremendous success, and as sure as I stand here today – you will become successful.”
+― Jordan Belfort
+
+“Data beats emotions.” — Sean Rad
+
+I attribute my success to this: I never gave or took any excuse. – Florence Nightingale
+
+To be successful, you have to have your heart in your business, and your business in your heart. – Thomas Watson
+
+Fear is the disease. Hustle is the antidote. Travis Kalanick
+
+Winners never quit, and quitters never win. Vince Lombardi
+
+The way I measure my life is ‘Am I better than I was last year?’ Satya Nadella
+
+“Knowing is not enough; we must apply. Wishing is not enough; we must do.” – Johann Wolfgang von Goethe
+
+I find that the harder I work, the more luck I seem to have. Thomas Jefferson
+# LEARNING
+
+An investment in knowledge pays the best interest. Benjamin Franklin
+
+“Your most unhappy customers are your greatest source of learning.” – Bill Gates
+
+The greatest education in the world is watching the masters at work. Michael Jackson
+
+“Stay hungry. Stay foolish.” ― Steve Jobs
 
 32 Get paid for what you are learning – Benjamin Mpoyi
 
@@ -252,158 +290,104 @@ Que vous soyez novice ou expert, votre travail a toujours de la valeur et vous t
 Par exemple, un architecte peut avoir besoin d'un graphiste pour faire une ébauche rapide de son futur projet afin de faire une proposition à son client.
 Dans ce genre de besoin, il n'est pas toujours nécessaire d'avoir un expert pour le mener à terme car cela n'est pas nécessaire à ce stade d'avancement. Cela n'est qu'un exemple de possibilité de monétisation pour un débutant. Enfin plus vous monétisez rapidement vos nouvelles compétences, moins vous aurez besoin d'enchainer les petits boulots pour financer vos dépenses quotidiennes.
 
-The greatest education in the world is watching the masters at work. Michael Jackson
+30 “Poor people have big TV. Rich people have big library.” – Jim Rohn
 
-“Stay hungry. Stay foolish.” ― Steve Jobs
+Ne vous faites pas trop distraire, passez plutot votre temps libre à vous former, occupez vous avec des activités ou vous serez en train de produire des choses.
 
-An investment in knowledge pays the best interest. Benjamin Franklin
-
-It’s good to learn from your mistakes. It’s better to learn from other people’s mistakes. Warren Buffett
-
-Thomas Edison: “I have not failed. I’ve just found 10,000 ways that won’t work.”
-
-I find that the harder I work, the more luck I seem to have. Thomas Jefferson
-
-“Be a yardstick of quality. Some people aren’t used to an environment where excellence is expected.” ― Steve Jobs
-
-The way I measure my life is ‘Am I better than I was last year?’ Satya Nadella
-
-“Knowing is not enough; we must apply. Wishing is not enough; we must do.” – Johann Wolfgang von Goethe
-
-“Patience, persistence, and perspiration make an unbeatable combination for success.” Napoleon Hill
-
-Winners never quit, and quitters never win. Vince Lombardi
-
-The successful warrior is the average man, with laser-like focus.”– Bruce Lee
-
-“Only the paranoid survive.” -Andy Grove, former CEO of Intel
-
-Fear is the disease. Hustle is the antidote. Travis Kalanick
-
-“I think a simple rule of business is, if you do the things that are easier first, then you can actually make a lot of progress.” – Mark Zuckerberg
-
-“You can achieve your 10-year plan in the next six months.” Peter Thiel
-
-If you believe in something, work nights and weekends, it won’t feel like work. Kevin Rose
+Améliorer ses capacités en musiques etc..
+# DISCIPLINE
+“The master has failed more times than the beginner has even tried.” – Stephen McCranie
 
 Focusing on one thing and doing it really, really well can get you very far. Kevin Systrom
 
-“If you can’t hire someone smarter than you, do it yourself.” Michael Seibel
+The successful warrior is the average man, with laser-like focus.”– Bruce Lee
 
-A leader is a dealer in hope. Napoleon Bonaparte
+“Patience, persistence, and perspiration make an unbeatable combination for success.” Napoleon Hill
 
-“The fastest way to change yourself is to hang out with people who are already the way you want to be.” — Reid Hoffman
+Thomas Edison: “I have not failed. I’ve just found 10,000 ways that won’t work.”
 
-I always make sure I hire people smarter than me. Aliko Dangote
+“Be a yardstick of quality. Some people aren’t used to an environment where excellence is expected.” ― Steve Jobs
 
-You really want a company full of missionaries, not mercenaries. – Sam Altman
+# WORK
 
-“Make friends with people who want the best for you.” Jordan Peterson
+“You can achieve your 10-year plan in the next six months.” Peter Thiel
 
-“There is no use whatever trying to help people who do not want to help themselves.” – Andrew Carnegie
+Be so good they can’t ignore you. – Steve Martin
 
-“Leadership is the art of getting someone else to do something you want done because he wants to do it.” Dwight D. Eisenhower
+Simplicity is the ultimate sophistication. Leonardo da Vinci
 
-No matter how busy you are, you must take time to make the other person feel important. Mary Kay Ash
+“Working hard for something we don’t care about is called stress: Working hard for something we love is called passion.”
+― Simon Sinek
+
+31 Constantly seek criticism. A well thought out critique of what you’re doing is as valuable as gold Elon Musk
+
+Ne fuyez pas la critique qui peut vous aider à vous améliorer. Même vous, essayez d'être toujours le plus objectif possible d'avoir une pensée critique sur comment vous opérer dans votre business ? Quels sont vos points forts, vos faiblesses ? Pourquoi vos concurrents réussissent et vous échouer ? Analyser le plus porfondément possible.
+“If you don’t value your time, neither will others. Stop giving away your time and talents. Value what you know & start charging for it.” – Kim Garst
+
+“I think a simple rule of business is, if you do the things that are easier first, then you can actually make a lot of progress.” – Mark Zuckerberg
+
+If you believe in something, work nights and weekends, it won’t feel like work. Kevin Rose
+# TEAM & RELATIONSHIPS
 
 I wouldn’t ask anyone to do anything I wouldn’t do myself. Indra Nooyi
 
 We run the company by questions, not by answers. Eric Schmidt
 
+You really want a company full of missionaries, not mercenaries. – Sam Altman
+
+I always make sure I hire people smarter than me. Aliko Dangote
+
+“The fastest way to change yourself is to hang out with people who are already the way you want to be.” — Reid Hoffman
+
+A leader is a dealer in hope. Napoleon Bonaparte
+
+“Leadership is the art of getting someone else to do something you want done because he wants to do it.” Dwight D. Eisenhower
+
+No matter how busy you are, you must take time to make the other person feel important. Mary Kay Ash
+
+“Make friends with people who want the best for you.” Jordan Peterson
+
+“If you can’t hire someone smarter than you, do it yourself.” Michael Seibel
+
+“There is no use whatever trying to help people who do not want to help themselves.” – Andrew Carnegie
+
 Surround yourself with people who do what you want to do, and eventually you’ll wake up to find yourself doing the same. Justin Kan
+
+
+# PRODUCT
+Content builds relationships. Relationships are built on trust. Trust drives revenue. Andrew Davis
+“The Riches are in the Niches” Pat Flynn
+“There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else.” – Sam Walton
+
+Start out by making 100 users really happy, rather than a lot more users only a little happy. Paul Buchheit
+Any business plan won’t survive its first encounter with reality. The reality will always be different. It will never be the plan.” Jeff Bezos
+I think the success around any product is really about subtle insights. You need a great product and a bigger vision to execute against, but its really those small things that 
+
+make the big difference. Chad Hurley
+“If you can offer a free tier that provides a lot of value, it will naturally help your product to spread much more rapidly.” -Melanie Perkins, Co-founder of Canva
+Start out by making 100 users really happy, rather than a lot more users only a little happy. Paul Buchheit
+“Do not worry about all the edge cases when you’re building something. Just worry about the generic case of who your core users are…” Adora Cheung
 
 “A good product can last forever.” – Bernard Arnault
 
 “Always deliver more than expected.” — Larry Page
 
-“Your most unhappy customers are your greatest source of learning.” – Bill Gates
-
-“Any business that has the soul purpose of making money is not worth doing.” – Mukesh Ambani
-
 You need to get to the future, ahead of your customers, and be ready to greet them when they arrive. Marc Benioff
-
-In order to be irreplaceable one must always be different. Coco Chanel
-
-“If you can offer a free tier that provides a lot of value, it will naturally help your product to spread much more rapidly.” -Melanie Perkins, Co-founder of Canva
-
-“If we tried to think of a good idea, we wouldn’t have been able to think of a good idea. You just have to find the solution for a problem in your own life.” -Brian Chesky, Co-founder of Airbnb
-
-Start out by making 100 users really happy, rather than a lot more users only a little happy. Paul Buchheit
-
-The utmost thing is the user experience, to have the most useful experience. Marissa Mayer
-
-I think the success around any product is really about subtle insights. You need a great product and a bigger vision to execute against, but its really those small things that 
-
-make the big difference. Chad Hurley
-
-“Data beats emotions.” — Sean Rad
-
+# MARKET
 The right moral compass is trying hard to think about what customers want. Sundar Pichai
-
-“The Riches are in the Niches” Pat Flynn
-
-“There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else.” – Sam Walton
-
-Any business plan won’t survive its first encounter with reality. The reality will always be different. It will never be the plan.” Jeff Bezos
-
-“Do not worry about all the edge cases when you’re building something. Just worry about the generic case of who your core users are…” Adora Cheung
-
-Start out by making 100 users really happy, rather than a lot more users only a little happy. Paul Buchheit
-
-We must learn what customers really want, not what they say they want or what we think they should want. Eric Ries
-
 You build your own strategy. You don’t define it by what another competitor is doing. Ginni Rometty
-
-“Don’t optimize for conversions; optimize for revenue.” – Neil Patel
-
+In order to be irreplaceable one must always be different. Coco Chanel
+“Any business that has the soul purpose of making money is not worth doing.” – Mukesh Ambani
+We must learn what customers really want, not what they say they want or what we think they should want. Eric Ries
+“If we tried to think of a good idea, we wouldn’t have been able to think of a good idea. You just have to find the solution for a problem in your own life.” -Brian Chesky, Co-founder of Airbnb
+# SALES
+Stop selling. Start helping. – Zig Ziglar
+Always look for the fool in the deal. If you don’t find one, it’s you. – Mark Cuban
 “Poor sales rather than bad product is the most common cause of failure.” Peter Thiel
-
-“Act as if! Act as if you’re a wealthy man, rich already, and then you’ll surely become rich. Act as if you have unmatched confidence and then people will surely have confidence 
-in you. Act as if you have unmatched experience and then people will follow your advice. And act as if you are already a tremendous success, and as sure as I stand here today – you will become successful.”
-― Jordan Belfort
-
-“If you don’t value your time, neither will others. Stop giving away your time and talents. Value what you know & start charging for it.” – Kim Garst
-
-“The master has failed more times than the beginner has even tried.” – Stephen McCranie
-
-“Time is more valuable than money. You can get more money, but you cannot get more time.” – Jim Rohn
-
-“Never depend on single income. Make investments to create a second source” – Warren Buffett
-
-“The Challenge of Work-Life
-
-Balance Is Without Question One Of The Significant Struggles Faced By Modern
-Man”- Stephen Covey
-
-“Working hard for something we don’t care about is called stress: Working hard for something we love is called passion.”
-― Simon Sinek
-
+“Don’t optimize for conversions; optimize for revenue.” – Neil Patel
+# WORK-LIFE BALANCE
 “You will never feel truly satisfied by work until you are satisfied by life.”
 ― Heather Schuck
-
-Simplicity is the ultimate sophistication. Leonardo da Vinci
-
-Content builds relationships. Relationships are built on trust. Trust drives revenue. Andrew Davis
-
-Be so good they can’t ignore you. – Steve Martin
-
-Stop selling. Start helping. – Zig Ziglar
-
-Always look for the fool in the deal. If you don’t find one, it’s you. – Mark Cuban
-
-To be successful, you have to have your heart in your business, and your business in your heart. – Thomas Watson
-
-Quality is the best business plan. – John Lasseter
-
-If you aren’t making a difference in other people’s lives, you shouldn’t be in business – it’s that simple. – Richard Branson
-
-I attribute my success to this: I never gave or took any excuse. – Florence Nightingale
-
-# LEARNING
-# DISCIPLINE
-# WORK
-# TEAM & RELATIONSHIPS
-# PRODUCT
-# MARKET
-# SALES
-# WORK-LIFE BALANCE
+“The Challenge of Work-Life
+Balance Is Without Question One Of The Significant Struggles Faced By Modern
+Man”- Stephen Covey
