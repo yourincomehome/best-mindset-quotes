@@ -4,96 +4,92 @@
 
 # MINDSET
 
-7 “I have always believed that each man makes his own happiness and is responsible for his own problems.” – Ray Kroc
-
-
-
+“I have always believed that each man makes his own happiness and is responsible for his own problems.” – Ray Kroc
 Dans l'entreprenariat, il n'y a pas de place pour les excuses. Si vous échouez vous devez prendre votre responsabilité et tout faire pour vous améliorer.
-
 Quand on réussit on a tendance à se féliciter seul de son succès. Pourquoi ne fait-on pas la même chose quand on échoue ?
-
 Si tu échoues, tu es le seul responsable. Même si ce n'est pas vrai forcément, si tu penses être le seul responsable, tu es maitre de ton destin.
 
+“Your time is limited, so don’t waste it living someone else’s life.” ― Steve Jobs
+Si vous n'êtes pas satisfaits avec votre vie actuelle. changez-là. Les regrets sont plus douleureux que les remords.
+Si tu as des rêves, fonce les realiser ne passe pas toute ta vie à la rever.
 
-6 “Your time is limited, so don’t waste it living someone else’s life.” ― Steve Jobs
-Si vous n'êtes pas satisfaits avec votre vie actuelle. 
-
-
-
-9 Your love makes me strong, your hate makes me unstoppable.” ― Cristiano Ronaldo
+"Your love makes me strong, your hate makes me unstoppable.” ― Cristiano Ronaldo
 Apprenez à vous entourer de gens positifs qui vont vous motiver, qui croient en vos projets. La négativité est contagieuse.
+Mais si quelqu'un vous déteste, utilise cette energie pour avancer et reussir à leur donner tord
+Par manque de courage, les gens jalousent les autres.
 
-
-10 “A goal without a plan is just a wish.” Antoine De Saint-Exupery
+“A goal without a plan is just a wish.” Antoine De Saint-Exupery
 Entrepreneur, vous jonglez entre les tâches courts terme à réaliser mais aussi suivre un plan plus profond. Mettez un peu d'organisation et ne faites pas qu'hustle sans direction précise.
+Having a Goal is Half the Battle
+You’re not content with the status quo. But you have to work toward your potential accomplishment for it to be anything more than an ideal.
+You have to plan the what, when, where, and (most importantly) how so you’re not wandering aimlessly doing tasks that may or may not be giving you leverage to meet your goal.
 
+“You can’t put a limit on anything. The more you dream, the farther you get.” – Michael Phelps
+Vos objectifs doivent suffisamment fort pour vous motiver. Si vous visez loin, même si vous vous arrêtez en chemin, vous serez dans une bonne position.
+Dans le business, vous ne devez pas vous contenter, sinon quelqu'un ira plus loin que vous et vous dépassera un moment donné.
 
-11  “You can’t put a limit on anything. The more you dream, the farther you get.” – Michael Phelps
-Vos objectifs doivent suffisamment fort pour vous motiver à persister malgré les difficultés.
-
-
-13 “When I’m old and dying, I plan to look back on my life and say ‘wow, that was an adventure,’ not ‘wow, I sure felt safe.’” Tom Preston-Werner
-
-
-
+“When I’m old and dying, I plan to look back on my life and say ‘wow, that was an adventure,’ not ‘wow, I sure felt safe.’” Tom Preston-Werner
 En tant qu'entrepreneur, on doit calculer le risque de chaque décision. Mais le risque fait partie intégrale dans le fait d'entreprendre.
-
 II faut conjuguer avec lui. Mais en maintenant avoir le plus grand optimisme possible en vers de futurs résultats.
 
-16. “The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.” –Winston Churchill
+“The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.” –Winston Churchill
+Chaque difficulté sur le parcours d'entrepreneur doit etre vu comme une possibilité de s'améliorer son business, ses connaissances.
 
+The greatest lesson that I learned in all of this is that you have to start. Start now, start here, and start small. Keep it Simple. Jack Dorsey
+Avoir un but long-terme est important. Il faut savoir découper dans petites tâches quotidiennes. Mais il ne faut pas faire de l'overthinking.
 
+“Stop letting people who do so little for you control so much of your mind, feelings & emotions.” Will Smith
+N'écoutez pas les haters. N'écoutez pas toujours vos proches sur vos décisions dans le business. L'avis de personne qui n'ont pas fait ce que vous cherchez à faire n'est pas parfait.
 
-Chaque difficulté sur le parcours d'entrepreneur doit etre vu comme une possibilité de s'améliorer
-
-19 The greatest lesson that I learned in all of this is that you have to start. Start now, start here, and start small. Keep it Simple. Jack Dorsey
-Avoir un but long-terme est important. Il faut savoir découper dans petites tâches quotidiennes. 
-
-
-22 “Stop letting people who do so little for you control so much of your mind, feelings & emotions.” Will Smith
-N'écoutez pas les haters. 
-
-23 I don’t believe that old cliche that good things come to those who wait. I think good things come to those who want something so bad they can’t sit still. Ashton Kutcher
-
+I don’t believe that old cliche that good things come to those who wait. I think good things come to those who want something so bad they can’t sit still. Ashton Kutcher
 Si vous voulez quelque chose il faut aller le chercher. C'est le plus audacieux qui réussit dans l'entreprenariat. Les timides et les timorés échouent.
+Chercher à contacter des gens, proposez ses services, si vous attendez de votre côté, vous serez toujours le dernier à manger.
 
-3 “I always look at the long term.” – Roger Federer
-
+“I always look at the long term.” – Roger Federer
 C'est le fondement même de Your Income At Home. Filtrer le bruit que vous entendez en ligne avec le nouveau business qui vous rendra riche.
 Beaucoup d'opportunités ne valent pas le coup. Canalisez votre énergie sur ce qui rapportera sur le long terme.
 Ne courrez pas après des petits profits. Construisez un business sur des bases solides.  Qui peut croitre de plus en plus avec les intérêts composés.
 , que vous pourrez revendre plus tard. 
 
-20 Saying it is impossible to live without failing at something is impossible. Unless you live so cautiously that you might as well not have lived at all, in which case you have failed by default.” – J.K. Rowling
+Saying it is impossible to live without failing at something is impossible. Unless you live so cautiously that you might as well not have lived at all, in which case you have failed by default.” – J.K. Rowling
+Echouer est une étape quasiment inévitable dans l'entrepreneuriat. Il faut simplement se relever et réessayer. Plus que ça c'est une étape bénéfique, on apprend plus de ses défaites que de ses réussites. Mais si vous n'essayez même pas, vous avez échoué dès le départ.
 
-Echouer est une étape quasiment inévitable dans l'entrepreneuriat. Il faut simplement se relever et réessayer. Mais si vous n'essayez même pas, vous avez échoué dès le départ.
+The things that caused problems for me in school are the same things that help me succeed in the world. Larry Ellison
+Etre un mauvais élève à l'école n'est pas une fin en soi. Surtout dans l'entrepreneuriat où on retrouve de tous types de profils. Des diplomés, gens atypiques.
+Le marché se moque de tes diplomes, ce qui importe c'est quelle valeur peux-tu lui apporter. Quel produit ou service peux tu apporter qui plairont a des clients. Evidemment des bonnes connaissances au départ peuvent aider mais le plus important ce sont les connaissances sur le terrain. 
 
-17 The things that caused problems for me in school are the same things that help me succeed in the world. Larry Ellison
-Etre un mauvais élève à l'école n'est pas une fin en soi même dans la vie. Surtout dans l'entrepreneuriat. 
 
-
-2 If you run into a wall, don’t turn around and give up. Figure out how to climb it, go through it, or work around it.” – Michael Jordan
-
+If you run into a wall, don’t turn around and give up. Figure out how to climb it, go through it, or work around it.” – Michael Jordan
 Sur le chemin de l'entreprenariat, il y aura toujours des obstacles sur votre route. La plupart des personnes se découragent et abandonnent. D'autres vous disent d'abandonner.
 Quand j'étais plus jeune au lycée, j'étais très peu discipliné. J'ai fini par me faire virer. Le jour de l'exclusion ma prof principale m'a dit que je fonçais dans le mur. Et elle avait raison. Je n'avais aucun diplôme. Je suis resté chez moi pendant des années sans aucun but. Puis j'ai découvert l'entreprenariat en ligne et depuis lors je n'ai jamais abandonné. J'ai du faire avec mes forces et mes faiblessses pour contourner tous les nombreux problèmes. Pesez-le pour et contre et si le jeu en vaut le coup, battez-vous !
 
 If you aren’t making a difference in other people’s lives, you shouldn’t be in business – it’s that simple. – Richard Branson
+Beaucoup de gens dans l'entrepreneuriat se lancent avec pour unique but de faire de l'argent. L'argent est le moteur de votre business. Mais courrir après les profits sans n'apporter de valeur concrète aux autres et déjà d'un point de vue moral discutable, mais contre-productif sur le long terme. Vous ne survivrez pas dans le business sur le long-terme avec des petites combines. Et vos concurrents n'hésiteront pas à vous exposer s'ils le peuvent.
 
 “Time is more valuable than money. You can get more money, but you cannot get more time.” – Jim Rohn
+Le temps est important pour tous, dans le business, il faut trouver des moyens pour travailler plus vite. Utiliser des services pour automatiser, simplifier des process, des freelances pour nous aider. J'ai une règle personnelle quand je fais une tâche qui dure plus 2 jours, j'essaie de savoir si je peux la déléguer ou non.
+Concentrez-vous sur les tâches critiques, le reste, il faut déléguer quand votre business grossit.
 
 “Never depend on single income. Make investments to create a second source” – Warren Buffett
+Ceci doit arrîver plus tard dans votre parcours. Ne mettez pas tous les oeufs dans le même panier. Construire un deuxieme revenu est un filet de sécurité en cas de coups durs.
 
 “Act as if! Act as if you’re a wealthy man, rich already, and then you’ll surely become rich. Act as if you have unmatched confidence and then people will surely have confidence 
 in you. Act as if you have unmatched experience and then people will follow your advice. And act as if you are already a tremendous success, and as sure as I stand here today – you will become successful.”
 ― Jordan Belfort
+Quand vous débutez, c'est difficile d'avoir confiance en soi, mais vous devez essayer de le simuler pour plusieurs raisons. C'est le meilleur moyen de le devenir réellement, vous devez inspirer confiance aux autres, vos futurs partenaires, vos clients. Pourquoi choisirait-il un nouveau venu plutot que quelqu'un de deja établi ? Vous ne devez absolument pas de mentir sur qui vous êtes, mais vous devez agir comme la personne que vous voulez être.
 
 “Data beats emotions.” — Sean Rad
+Dans le business, les émotions doivent avoir peu de place dans vos prises de décisions. La logique, et les données sont vos meilleurs armes.
+Par des multiples tests, vous récoltez des données pour agir de la bonne amnière. Un partenaire sympathique mais peu utile doit être remplacer. Un produit marche plus que prévu que votre produit principal, concentrez vos efforts sur lui. 
 
 I attribute my success to this: I never gave or took any excuse. – Florence Nightingale
+Ne faites jamais d'excuses quand vous échouez. C'est une mauvaise manière de faire. Vous trouverez toujours des excuses. A la place, cherchez objectivement les raisons de vos échecs. Vous n'êtes pas assez formé ? Votre business n'était pas viable ? Cherchez des véritables raisons que vous pouvez améliorer et pas simplement des excuses.
 
 To be successful, you have to have your heart in your business, and your business in your heart. – Thomas Watson
+Dans le business, on ne réussit pas si on fait les choses à moitié. Il faut pas non plus chasser plusieurs choses en même temps. Trouvez le bon business et se consacrer entièrement à ce qu'on fait. Sinon, on va échouer et perd du temps en plus.
 
 Fear is the disease. Hustle is the antidote. Travis Kalanick
+Plus vite, vous essayerez plus vite la peur se dissipera. La première fois qu'on fait du vélo, ça parait insurmontable, on peut effectivement se blesser si on est pas bien protégé ou encadré, mais autrement à force on y arrive. L'entrepreunariat c'est pareil
 
 Winners never quit, and quitters never win. Vince Lombardi
 
